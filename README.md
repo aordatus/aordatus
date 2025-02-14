@@ -1,7 +1,5 @@
 ### Red Arcana | Aordatus | Ali Mahdi Rizvi
 
-I try to upload a video for every repository present here. So check out my channel.
+Demo Showcases Here 🤖 https://www.youtube.com/@redarcana53
 
-https://www.youtube.com/@redarcana53
-
-For contacting me, use this aordatus@gmail.com
+For contacting me, use this ✉️ aordatus@gmail.com
